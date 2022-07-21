@@ -48,6 +48,10 @@ What follows is a certain code of conduct, moral directives, or attempted philos
 
 ## Meaning of Words
 
+## Natural Law or Legal Code
+
+## Material Matters: Meaning and Consequences of Ownership
+
 ## Further Reading
 
 "Thoughts are Things"
