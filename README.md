@@ -44,7 +44,7 @@ What follows is a certain code of conduct, moral directives, or attempted philos
 
 ## Helping Yourself: Proper Selfishness
 
-## Avoiding Absolutes: Keep Everything Relative
+## Avoiding Absolutes, Mostly: Keep Everything Relative
 
 ## Meaning of Words
 
@@ -52,10 +52,14 @@ What follows is a certain code of conduct, moral directives, or attempted philos
 
 ## Material Matters: Meaning and Consequences of Ownership
 
+## No Regerts, but Mistakes Were Made
+
+## Normal... Means... Average
+
 ## Further Reading
 
-"Thoughts are Things"
-"Enchiridion"
+- "Thoughts are Things" by Prentice Mulford (c. 1889)
+- "Enchiridion" by Epictetus (c. 125 AD)
 
 ## Conclusion
 
