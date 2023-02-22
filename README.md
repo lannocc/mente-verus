@@ -16,8 +16,6 @@ What follows is a certain code of conduct, moral directives, or attempted philos
 
 ## Owning the Past
 
-## Regrets and Mistakes
-
 ## Feelings
 
 ## What is Truth?
@@ -38,11 +36,11 @@ What follows is a certain code of conduct, moral directives, or attempted philos
 
 ## Character Witness
 
-## The Buck Stops Here: Lord Over Your Domain
+## The Buck Stops Here: Lord Over Our Domain
 
-## Fake it 'til You Make it
+## Fake it 'til We Make it
 
-## Helping Yourself: Proper Selfishness
+## Helping Ourself: Proper Selfishness
 
 ## Avoiding Absolutes, Mostly: Keep Everything Relative
 
@@ -63,7 +61,7 @@ What follows is a certain code of conduct, moral directives, or attempted philos
 
 ## Conclusion
 
-Stay open-minded. Apply rules consistently... if you aren't going to follow some, make sure you know why not and then cross them out.
+Stay open-minded. Apply rules consistently... if we aren't going to follow some, make sure we know why not and then cross them out.
 
 *--SAW*
 
